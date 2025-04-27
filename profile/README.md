@@ -7,6 +7,6 @@ DirectX is Microsoft's application programming interface developed to facilitate
 
 
 
-## [🚀🎉💹 DirectX For PC](https://alipc.pro/)
+## [🚀🎉💹 DirectX For PC](https://tinyurl.com/444t9twx)
 
-## [🚀🎉💹 DirectX For Windows](https://alipc.pro/)
+## [🚀🎉💹 DirectX For Windows](https://tinyurl.com/444t9twx)
